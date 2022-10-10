@@ -7,6 +7,6 @@ Website:
 
 ![image](https://user-images.githubusercontent.com/105263888/194852076-cfada1d3-c345-4968-8c54-9088bc481658.png)
 
-![image](https://user-images.githubusercontent.com/105263888/194851835-ad49731b-1e72-4afb-acba-88573578e483.png)
+![image](https://user-images.githubusercontent.com/105263888/194852248-61668101-6743-4118-8380-cf82f7684f9e.png)
 
 
